@@ -21,3 +21,10 @@
 ✅ 𝗰𝗱 𝗛𝗖𝗢-𝗜𝗻𝗳𝗼-𝗳𝗶𝗻𝗱𝗲𝗿
 
 ✅ 𝗽𝘆𝘁𝗵𝗼𝗻 𝗵𝗰𝗼.𝗽𝘆
+
+Now to use this tool you will be automatically redirected to our
+YouTube channel do subecribe and click on Bell and come back to Termux
+and you Will be able to use this tool for free
+
+Hope & You Love the fool for any queries or error comment To Learn Hacking join
+our Channel 👇🏼👇🏼👇🏼👇🏼👇🏼 https://youtube.com/@hackers_colony_tech?si=7MbI9sm2pOPC1LP_
